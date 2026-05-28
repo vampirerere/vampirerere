@@ -1,4 +1,6 @@
-# 📌 DON'T. STALK. US. You know exactly who you are. We do not like you. We do not wish to be involved with you anymore. Stay out of my life. My boyfriends life. And his families life.
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/0675324d-d6c0-41b7-94e4-9a22ea952111" />
+ 
+ 📌 DON'T. STALK. US. You know exactly who you are. We do not like you. We do not wish to be involved with you anymore. Stay out of my life. My boyfriends life. And his families life.
 
 We're chill. I guess. If you wanna talk then come talk. I don't care.
 
