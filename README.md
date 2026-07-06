@@ -4,3 +4,5 @@
 17 bodily - SYS host - Please use tone tags - I CANNOT, and i mean CANNOT, pick up on situations well.
 
 autistic + sensitive
+
+Dni if you can't move on from something we did months ago.
