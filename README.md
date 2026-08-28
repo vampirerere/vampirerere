@@ -1,5 +1,6 @@
 
-[logo]: [https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png](https://cdn.phototourl.com/free/2026-08-28-aa47c9c5-5e4c-4940-a547-3fc18c47cb82.jpg) "Logo Title Text 2"
+"![alt text](https://cdn.phototourl.com/free/2026-08-28-aa47c9c5-5e4c-4940-a547-3fc18c47cb82.jpg)"
+ https://stackoverflow.com/questions/14494747/how-to-add-images-to-readme-md-on-github#:~:text=!%5Balt%20text%5D(http%3A//url/to/img.png)
 
 Hi, you can call me Orion, or whatever names you see on my socials.
 
