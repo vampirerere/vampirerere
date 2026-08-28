@@ -1,4 +1,5 @@
-a5bcea503545ace48bf3aaf3b5e030de.jpg
+
+[logo]: [https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png](https://cdn.phototourl.com/free/2026-08-28-aa47c9c5-5e4c-4940-a547-3fc18c47cb82.jpg) "Logo Title Text 2"
 
 Hi, you can call me Orion, or whatever names you see on my socials.
 
