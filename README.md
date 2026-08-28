@@ -1,8 +1,10 @@
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/0675324d-d6c0-41b7-94e4-9a22ea952111"/> 
+Hi, you can call me Orion, or whatever names you see on my socials.
 
- 
-17 bodily - SYS host - Please use tone tags - I CANNOT, and i mean CANNOT, pick up on situations well.
+Very shy / antisocial towards new people, and Im also a bit slow. I will not understand what you're implying immediately. 
 
-autistic + sensitive
+I've been really depressed as of late so I might be a bit overly sensitive, and I apologize. I cannot control how I feel. 
 
-Dni if you can't move on from something we did months ago.
+Please do not interact if me or my partner are visibly upset. We do not wish to speak to anyone but each other.
+
+!! I AM A PRIVATE PERSON !! 
+Most information you'll get out of me is my name. Same goes to regarding my partner. Attempting to ask for more information will result in a block.
