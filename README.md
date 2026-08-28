@@ -1,5 +1,6 @@
+.・。.・゜✭・.・✫・゜・。.
+![alt text](https://cdn.phototourl.com/free/2026-08-28-aa47c9c5-5e4c-4940-a547-3fc18c47cb82.jpg).・。.・゜✭・.・✫・゜・。.
 
-"![alt text](https://cdn.phototourl.com/free/2026-08-28-aa47c9c5-5e4c-4940-a547-3fc18c47cb82.jpg)"
 
 Hi, you can call me Orion, or whatever names you see on my socials.
 
